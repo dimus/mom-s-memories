@@ -1,4 +1,7 @@
-Memories from Atepaeva Vassa
+# Memories from Vassa Atepaeva
+
+Most of the story happens at, or near city [Kungur, Ural mountains](
+https://www.google.com/maps/place/Kungur,+Perm+Krai,+Russia).
 
 Let these notes to become the start of the family history of our family. They
 also might be interesting as description of situation the family was going
