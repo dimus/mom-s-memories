@@ -188,3 +188,161 @@ walking from his work drunk. My mom took him to the hospital, and scolded him
 terribly, cried, she was afraid he will be arrested. Everything worked out well
 in the end, but later my mom was saying that if he was arrestd, he would be
 alive now.
+
+He did like to build new constructions at home. Before the war he and unkle
+Mischa built a house, and we moved there in the summer of 1941. Dad tried to
+finish more before getting conscripted to the war. He was building a cellar,
+bath house, a shed, made a big stash of firewood. I was hanging around with
+him, although he never played with me, and did not talk to me much. Anyway, it
+was pleasant to be near him. I was always waiting his arrival back home, he
+always had clean boots, even when it was muddy and rainy outside.
+
+When the war started, my dad received protection from conscription, because he
+was considered a skillful worker, even if he only was a carpenter. However he
+was conscripted in 1943. There was a bag with dried bread already prepared. For
+months my mom dried out a little bit of the daily bread and collected it in the
+bag, so if he leaves, he has some food with him. She learned from the
+experience with unle Michael. He was a communist, and was saying that in army
+the food will be provided, and did not take anything with him. However they
+started to get food supplies only after arriving to their regiment. So he
+suffered from hunger until then. Gladly other soldiers did help him. My dad
+left during the night. Parents did not take me to the railway station, but I
+remember that sad evening of the farewel. Everybody felt pain and sadness.
+
+After that we were receiving letters from the front. Dad wrote them by green
+chemical pensil. Every letter started with: "Beautiful day, and cheerful
+minute, hello my dearest wife Annute". The letters were short, energetic. He
+served in a sapper engineer regiment and wrote that he fights with an axe and
+with a rifle. He was wounded two times. Then we got a letter from his
+commanding officer, that the soldier Atepaev N. I. was wounded and sent to a
+hospital, that he is prepared for a medal, but his whereabouts are not known.
+It was in 1945, somewhere close to Riga. I suspect that nationalist-latvian
+forces apprehended him. So my dad was missing in action. I still keep his
+letters. Sometimes I corrected his writing with red ink, because he made many
+mistakes in writing and I would gave him D or D+ marks. Dad was not very
+literate. He could not help with with math homework even whan I was in the
+second grade. My mom sent him letters adding some makhorka tobacco into the
+envelope, she grew tobacco in the garden for sale. Dad liked the tobacco.
+
+It is hard for me to imagine him in a battle.He was a peasant from a distant
+Ural village, he did not understand well where is Germany, he was torn out from
+his normal life, the only life he knew and understood.
+
+My mom, Anna Micheevna, was born in 1904. She is the oldes out of 4 sisters.
+She lost her father when she was 10 and became the main supporter of the family
+since then. She had 3 years of education, but was not allowed to continue,
+becase her hands were needed at home. Her teacher was sad, because she was a a
+good student, and she wanted to continue her education very much. However
+grandma did not allow it, said it is "sin". Mom did not go against her mother.
+She had to do all the male peasant work: to plow, to harrow, to sow, do animal
+husbendry, and so on. The household was hard for her to support, and feed all
+the family. Grandgranddad Afanasiy was helping her.
+
+The household included 2 hourses, 2 cows with several calves, 10-15 sheep, many
+chickens. Mom loved the horses. One horse was headstrong. She did not allow any
+other horse to pass her on a road. She did not allow males near, because she
+knew only females, my mom and my grandma. During the the World War 1 the horse
+was taken for the Tzar army's wagon trail. Grandma had to follow with the wagon
+train for some time, to help the horse to get used to new life. When it was
+time for grandma to return back, people found that the noone can get near the
+horse - she would bite, kick, was like mad. When soldiers found that they
+cannot tame the horse, they allowd my grandma to take her back.
+
+During the harvest grandma hired tatars from a nearby tatar village. We were in
+good relations with them, and used to visit them in their village from time to
+time.
+
+There was always enough grain for 2-3 years. The family ate well. During
+non-fasting days family ate both milk and meat. Gradma made soup out of large
+chunks of meat. Potato was not very popular, family preferred grains, porrige,
+bred, special species of turnip, beet, rutabaga. Sour cabage and mushrooms were
+a common food. During fasting days family ate fish and vegetables with
+vegetable oil.
+
+The clothes were very simple: bast shoes, robes made from self-made cloth,
+bought clothes were only for holidays and church.
+
+After the revolution life did not change at first. The village did experience
+civil war. White (contr-revolution) army was retreating. They published a
+decree that old money will not be valid anymore and has to be exchanged to new
+ones. Grandgranddad Afanasiy brought from the cellar a pot with gold coins,
+poored it on the table and said -- look for the last time at the real money --
+and left to whites to exchange it. He brought back huge volume of new paper
+money that already did cost nothing. So family lost all what was accumulated
+during years and years of hard labor and harsh frugality. The money were for a
+"rainy day", in case if a horse die, or a bad harvest.
+
+When red army came to the village, the commanding officer let my mom to look
+into his binoculars. She saw how whites were crawling up the mountain hill,
+running away from reds.
+
+Reds started fighting illiteracy. Mom, still a child, became a teacher for
+adults. She was paid well for her lessons. One woman said that she read a word
+"towel" but got a "hand-wiper" (a local word for a towel). The village got a
+theatrical club, but grandma did not allow mom to join. In 1922 mom married, in
+1923 my sister Klava was born, and a year later the husband died (his neck
+could not turn for some reason). Then mom married my dad, Atepaev Nikolay
+Ivanovich. They had 6-7 children, but all of them died early. Brother Ivan
+lived until 6, he died from diphtheria. The death of children was considered a
+natural thing: "God gave and God took. Thanks God they will not suffer will not
+sin". However lost of Ivan was hard, he grew up big already. Mom was saying
+that he was a mischivious child. I was the only kid who survived from the
+second marriage. The last of my siblings died during the war. She was a girl
+Valya, everybody loved her, especially uncle Michael.
+
+When war started, my mom spared a half a kilo of cookies. She would "dissolve"
+it in a warm water to feed Valya. Kindergarden was far, the road to it was
+terrible. During autumn the mud was up ty my knees. Cannot imagine how my mom
+was carrying Valya there every working day. Valya died from pneumonia in the
+winter of 1942. Dad made a coffin himself and brought her to the cemetary.
+
+During the civil war, there were poor people commitees. They would take bread
+from rich peasants for the army and poor people. They took bread from our
+family too. Grandgranddad was crying and shamed them: "Whom you take the bread
+from? From the orphans! Look at the family workers!" -- and was pointing to a
+row of girls one smalle than the other. My mom was oldest, 14 years old, and
+the youngest was 4. They took several wagons of grain. Only one of them felt
+guilty and returned some grain from the new harvest.
+
+When collectivisation started, dad, mom and aunt Olga joined the collective
+farm. They believed that it will be easier to work, easier to live. Repressions
+against rich peasants was considered as a tragedy, as an unbelievable
+injustice. The most hardworking peasants, best households were sent to Siberia.
+They cried and begged to be allowed to work at collective farm, but it was in
+vain. One of the poor peasants was boasting that now he has good clothes, as if
+he was rich, but very soon his good clothes became dirty and torn.
+
+The whole village came to see off the repressed peasants. Everybody were
+crying, the ones who were going, and the ones who were staying.
+
+The new collective farm was in a bad shape, nobody was good enough to lead it.
+Poor peasants could not support their own household before, and now they could
+not support the collective farm either. Strangly enough in the next village
+Makarovo the were no much repression, and their collective farm was rich, at
+least until the war started.
+
+During 30ies there was hunger, and my parents decided to move to Kungur city.
+Parents left all to aunt Olga and grandma. Dad was saying that in the city at
+least will be a salary every month, so less risk. They moved in with fellow
+countrymen, who, in turn, were renting an appartment not far from bazaar. They
+rented a room and a kitchen, we lived in the kitchen. Our 'landlord' Ivan
+Ivanovich, worked at the railroad, and he helped my dad to find a job there as
+well. His wife, Anisia, was a drunkard, but she was a cheerful and good-natured
+person. She was helping my mom to adjust to city's life. I was only a few
+months old, so my mom did not work.
+
+The connection with the village continued until the war. The fellow villagers
+often stayed in our appartment, if they arrived to the city to trade at the
+bazaar. Parent were happy to see them, considered them "our own" -- "our own is
+like a family". Quite often an uncle of my mom visited us. During the war he
+was a communist, participated in the red army, but when the collectivisation
+started he left the party, became a homeless a tramp. He was saying that
+peasants were deceived. Communists promised land, but then took it back. After
+some while he dissapeared, we do not know what happened. A step brother of my
+mom, Anton, used to visit us too. He was a soldier during the World War 1. He
+was saying he did not want to kill anybody, so he was shooting into the air. He
+was dislocated in France at some point. He was telling that peasants in France
+wear wool clothes every any day. Sometimes a brother of my dad, Grigory, would
+visit too. He was arrested later and sent to dig the Belomor channel for 10
+years, because of some of his remarks against collectivisation.
+
