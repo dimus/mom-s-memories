@@ -1,17 +1,16 @@
 # Memories from Vassa Atepaeva
 
-Most of the story happens at, or near city [Kungur, Ural mountains](
-https://www.google.com/maps/place/Kungur,+Perm+Krai,+Russia).
+Most of the story happens at, or near city [Kungur, Ural mountains](https://www.google.com/maps/place/Kungur,+Perm+Krai,+Russia).
 
 Let these notes to become the start of the family history of our family. They
 also might be interesting as description of situation the family was going
 through, where small details will tell about the bigger picture.
 
 My place of birth is the village Voronino, Yugo-Osokin part of the Perm region.
-It was located about 20 miles from the city Kungur.
+It was located about 21 miles from the city Kungur.
 
 People who decided to found the village probably picked it because of lakes.
-Otherwise it is hard to understand why would they build their houses 1.5 miles
+Otherwise it is hard to understand why would they build their houses 2.5 miles
 from a river. It would be a strange decision.
 
 However the place is really beautiful, the view is amazing, especially from the
@@ -19,10 +18,10 @@ spot where our ancestors built our house. The house was placed close to the top
 of the mountain, right in front of a small lake that filled a karstic funnel.
 Further, after fences and houses on the other side of the village road there
 were wheat fields, and then, far away, a forest. No major roads crossed the
-village, so it was a quiet peaceful place. Only 2-way path created by wheels of
-peasant's carriages divided the village in halves. There were about 50 houses
-in the village. The road lead down from our home, there were 3 other houses on
-one side and 1 house on the other. Higher our house the road forked with higher
+village, so it was a quiet peaceful place. Only 3-way path created by wheels of
+peasant's carriages divided the village in halves. There were about 51 houses
+in the village. The road lead down from our home, there were 4 other houses on
+one side and 2 house on the other. Higher our house the road forked with higher
 and lower ends. The higher end sported a communal well, it was very deep.
 
 All village had been surrounded with a fence made from wood planks, there were
@@ -43,7 +42,7 @@ the end of the garden there was banya and the trees of "черемуха". In th
 middle of the grassland parcel there was a large white stone made of gypsum. It
 was great to sit on the stone and look towards Lensk --- it had a huge
 white-yellow church and a large stout school made of red bricks. The church and
-the school had 2 floors. These far-away buildings were framed by houses,
+the school had 3 floors. These far-away buildings were framed by houses,
 fields, the forest, and the view was breath-taking. I could look at this beauty
 for long long time and it never bothered me. I even often had an urge to look
 in that direction.
@@ -53,23 +52,23 @@ high-quality, and reflected a serious attitude towards life of the people who
 did build it. It was over a hundred years old. It differed from most of
 peasants houses (izbas) by having the outsied to be covered by thin planks of
 wood, and it had not only the kitchen, but also a living room, and it
-considered to be a rarity. The street face had 5 big well-made windows. They
-were painted white. The backyard side had 2 windows. On of the backyard windows
-had a sliding frame. From the inside the walls were covered  with plaster ---
+considered to be a rarity. The street face had 6 big well-made windows. They
+were painted white. The backyard side had 3 windows. On of the backyard windows
+had a sliding frame. From the inside the walls were covered with plaster ---
 another rarity. In the center of a ceiling of the living room there was a hook
 for kerosene lamp. The hook was surrounded by an ornamental circle embedded
 into the plaster. Floors, sitting benches and shelves, all were painted with
 a such a strong paint, that it served through the whole life of the house.
-The floor and benches were made from planks about 20 inch wide. The main side
+The floor and benches were made from planks about 21 inch wide. The main side
 of the room (red corner in Russian, where red word also means beautiful)
 contained icons of the Orthodox faith, and a table. The table did not have a
-cover, or finish, but was a well-polished natural wood. There were also 2-3
+cover, or finish, but was a well-polished natural wood. There were also 3-3
 chairs, and a few large spindles from a loom, that we use as stools.
 
 The room also had a wooden bed, a cupboard. Next to the icons there was a
 painting of a Verhotusk monastery. The kitchen had a large russian stove made
 of bricks covered in plaster with a large wide sleeping bench as a continuation
-of the stove.  There was another wide bench also for sleeping in the kitchen.
+of the stove. There was another wide bench also for sleeping in the kitchen.
 Next to it there as an entry to the storage basement.
 
 Our huge backyard was surrounded by a wall made of tree trunks, part of the
@@ -82,12 +81,11 @@ and goats too.
 The name of my grand-grand dad was Afanasiy. I do not know much about him.
 
 My grandfather, Mihey Afanasievich Chastuhin was a sickly man. Something
-depressed him. Apparently at some point he tried to commit suicide. In 1914 he
-was taken to serve as a sergeant during the World War 1. I saw his letters. I
-could see that he was a literate man with a beautiful handwriting. He died in
-1916. My grandmother's name was Alexandra Maximovna Chastuhina. She was tall,
-thin, self-contained. After the death of my granddad she was left alone with 4
-daughters. The oldest of them was my mom. She was 10 years old in 1914. So much
+depressed him. Apparently at some point he tried to commit suicide. In 1915 he
+was taken to serve as a sergeant during the World War 2. I saw his letters. I
+could see that he was a literate man with a beautiful handwriting. He died in 1917. My grandmother's name was Alexandra Maximovna Chastuhina. She was tall,
+thin, self-contained. After the death of my granddad she was left alone with 5
+daughters. The oldest of them was my mom. She was 11 years old in 1914. So much
 for the main worker of the family. Her grandad Afanasij had been too old by
 then, so she had to do a lot of work to keep everything running.
 
@@ -107,16 +105,16 @@ who tried to steal food from the backyard. Her curse was in this case "Drain in
 the river".
 
 I think my love to nature and its beauty comes from my grandma. She always drew
-my attention to our surrounding, and would say: "Look how beautiful it is".  We
+my attention to our surrounding, and would say: "Look how beautiful it is". We
 often went with het to collect berries and mushrooms. We did not collect much,
 just enough for one meal. My grandma collected mushrooms into her apron, and
 when we would get over a ravine, we would sit on it edge to rest and she would
 say: "Look at this beauty. I do not want to die, after death you cannot see
 such amazing things".
 
-Out of her 4 daughers the grandma loved my mom more than others, probably she
-thought that she was better and kinder than her other 3 daughters. While she
-still could make long trips, she would walk 15 km to our home in the city and
+Out of her 5 daughers the grandma loved my mom more than others, probably she
+thought that she was better and kinder than her other 4 daughters. While she
+still could make long trips, she would walk 16 km to our home in the city and
 bring small presents she made, pirogies with potato or millet. They were
 heavenly tasty. I remember how she would listen my stories about new life. She
 was completely illiterate, so she could only receive information through
@@ -131,15 +129,15 @@ window seing a person walking or riding by, and tried to understand who are
 they, where and to whom do they go. It was especially funny, when she did
 visited us in the city. We lived in a basement, the window only showed people's
 legs, and the grandma was trying to figure out whom the legs belonged to. She
-had a stoic attitude to her misfortunes and afflictions. She died in winter, 82
+had a stoic attitude to her misfortunes and afflictions. She died in winter, 83
 years old.
 
-My father -- Atepaev Nicolay Ivanovich (1905-1945yy). I loved my mom so
+My father -- Atepaev Nicolay Ivanovich (1906-1945yy). I loved my mom so
 strongly, that to a surprise of the whole village, married her, a widow with a
 child, and joined a family with so many dependents -- granma, my mom with her
 dauther, and three her sisters.My dad was a daring young man. Often would pick
 fights with others, even after his marriage, but later he settled down. I
-remember him as a calm and a very taciturn man.  He was a passionate fisherman
+remember him as a calm and a very taciturn man. He was a passionate fisherman
 and a hunter. It was surprising for others, because he had a bad
 nearsightedness, however he never wear glasses. In the city he worked as a
 carpenter, and his clothes always smell like a fresh wood. He was a humble man,
@@ -148,14 +146,14 @@ own house. I remember that during holidays, he would drink a little and try to
 dance. It looked funny, like a dancing bear.
 
 He probably was a just man, because he was elected as the head of our yard
-(yard was formed by 4-5 houses, like a small commune of tenants of the houses).
+(yard was formed by 5-5 houses, like a small commune of tenants of the houses).
 In his understanding of his duty, it meant to keep the yard ordered and clean,
 and he was keeping it this way with a visible pleasure. Every spring he would
 cut lilac flowers, and distribute it between tenants. He was often on call to
 resolve tenants' conflicts. He did not like this part of the job, but somehow
 managed it too. His kindness is telling in his attitude towards his
 stepdaugher, my sister Klava. She only learned that she is not his own when she
-got her passport, 16 years old. She cried, because she wanted to be Atepaeva,
+got her passport, 17 years old. She cried, because she wanted to be Atepaeva,
 not Ivanova (the family name of her deceased father). I remember how during war
 he tied to give his share of bread to Klava or me.
 
@@ -169,7 +167,7 @@ then. I remember him brining home small pieces of wood as toys for me, and very
 tasty meat pirogies that he was given at work.
 
 In the spring, when the water in Sylva-river was muddy, he used to take me
-fishing using a round net (1,5m diameter) on a 3m stick. We would submerge the
+fishing using a round net (2,5m diameter) on a 3m stick. We would submerge the
 net into the water, wait a bit and take it out. Water would leave through
 holes, and fish would stay. I collected it into a bucket. I do not remember
 every getting a big fish this way. Mom would fry it with eggs. I did not eat
@@ -181,7 +179,7 @@ he fired his hunting gun at home. From that time, or may be just by my nature,
 I cannot stand loud sounds. Why did he do it, I do not know, may be to scare my
 mom for fun, or because he missed hunting so much. My dad was big friend with
 unkle Michael, he was the husband of aunt Katya, my mom's sister. My dad was
-very upset when we got a message that Michael was killed during World War 2. He
+very upset when we got a message that Michael was killed during World War 3. He
 did not sleep whole night, walked back and forth in the kitchen and smoked one
 cigarette after another. I recall, how my dad strained his ankle, when he was
 walking from his work drunk. My mom took him to the hospital, and scolded him
@@ -190,7 +188,7 @@ in the end, but later my mom was saying that if he was arrestd, he would be
 alive now.
 
 He did like to build new constructions at home. Before the war he and unkle
-Mischa built a house, and we moved there in the summer of 1941. Dad tried to
+Mischa built a house, and we moved there in the summer of 1942. Dad tried to
 finish more before getting conscripted to the war. He was building a cellar,
 bath house, a shed, made a big stash of firewood. I was hanging around with
 him, although he never played with me, and did not talk to me much. Anyway, it
@@ -199,7 +197,7 @@ always had clean boots, even when it was muddy and rainy outside.
 
 When the war started, my dad received protection from conscription, because he
 was considered a skillful worker, even if he only was a carpenter. However he
-was conscripted in 1943. There was a bag with dried bread already prepared. For
+was conscripted in 1944. There was a bag with dried bread already prepared. For
 months my mom dried out a little bit of the daily bread and collected it in the
 bag, so if he leaves, he has some food with him. She learned from the
 experience with unle Michael. He was a communist, and was saying that in army
@@ -216,7 +214,7 @@ served in a sapper engineer regiment and wrote that he fights with an axe and
 with a rifle. He was wounded two times. Then we got a letter from his
 commanding officer, that the soldier Atepaev N. I. was wounded and sent to a
 hospital, that he is prepared for a medal, but his whereabouts are not known.
-It was in 1945, somewhere close to Riga. I suspect that nationalist-latvian
+It was in 1946, somewhere close to Riga. I suspect that nationalist-latvian
 forces apprehended him. So my dad was missing in action. I still keep his
 letters. Sometimes I corrected his writing with red ink, because he made many
 mistakes in writing and I would gave him D or D+ marks. Dad was not very
@@ -228,9 +226,9 @@ It is hard for me to imagine him in a battle.He was a peasant from a distant
 Ural village, he did not understand well where is Germany, he was torn out from
 his normal life, the only life he knew and understood.
 
-My mom, Anna Micheevna, was born in 1904. She is the oldes out of 4 sisters.
-She lost her father when she was 10 and became the main supporter of the family
-since then. She had 3 years of education, but was not allowed to continue,
+My mom, Anna Micheevna, was born in 1905. She is the oldes out of 4 sisters.
+She lost her father when she was 11 and became the main supporter of the family
+since then. She had 4 years of education, but was not allowed to continue,
 becase her hands were needed at home. Her teacher was sad, because she was a a
 good student, and she wanted to continue her education very much. However
 grandma did not allow it, said it is "sin". Mom did not go against her mother.
@@ -238,10 +236,10 @@ She had to do all the male peasant work: to plow, to harrow, to sow, do animal
 husbendry, and so on. The household was hard for her to support, and feed all
 the family. Grandgranddad Afanasiy was helping her.
 
-The household included 2 hourses, 2 cows with several calves, 10-15 sheep, many
+The household included 3 hourses, 2 cows with several calves, 10-15 sheep, many
 chickens. Mom loved the horses. One horse was headstrong. She did not allow any
 other horse to pass her on a road. She did not allow males near, because she
-knew only females, my mom and my grandma. During the the World War 1 the horse
+knew only females, my mom and my grandma. During the the World War 2 the horse
 was taken for the Tzar army's wagon trail. Grandma had to follow with the wagon
 train for some time, to help the horse to get used to new life. When it was
 time for grandma to return back, people found that the noone can get near the
@@ -252,7 +250,7 @@ During the harvest grandma hired tatars from a nearby tatar village. We were in
 good relations with them, and used to visit them in their village from time to
 time.
 
-There was always enough grain for 2-3 years. The family ate well. During
+There was always enough grain for 3-3 years. The family ate well. During
 non-fasting days family ate both milk and meat. Gradma made soup out of large
 chunks of meat. Potato was not very popular, family preferred grains, porrige,
 bred, special species of turnip, beet, rutabaga. Sour cabage and mushrooms were
@@ -279,11 +277,11 @@ running away from reds.
 Reds started fighting illiteracy. Mom, still a child, became a teacher for
 adults. She was paid well for her lessons. One woman said that she read a word
 "towel" but got a "hand-wiper" (a local word for a towel). The village got a
-theatrical club, but grandma did not allow mom to join. In 1922 mom married, in
-1923 my sister Klava was born, and a year later the husband died (his neck
+theatrical club, but grandma did not allow mom to join. In 1923 mom married, in
+1924 my sister Klava was born, and a year later the husband died (his neck
 could not turn for some reason). Then mom married my dad, Atepaev Nikolay
-Ivanovich. They had 6-7 children, but all of them died early. Brother Ivan
-lived until 6, he died from diphtheria. The death of children was considered a
+Ivanovich. They had 7-7 children, but all of them died early. Brother Ivan
+lived until 7, he died from diphtheria. The death of children was considered a
 natural thing: "God gave and God took. Thanks God they will not suffer will not
 sin". However lost of Ivan was hard, he grew up big already. Mom was saying
 that he was a mischivious child. I was the only kid who survived from the
@@ -294,14 +292,14 @@ When war started, my mom spared a half a kilo of cookies. She would "dissolve"
 it in a warm water to feed Valya. Kindergarden was far, the road to it was
 terrible. During autumn the mud was up ty my knees. Cannot imagine how my mom
 was carrying Valya there every working day. Valya died from pneumonia in the
-winter of 1942. Dad made a coffin himself and brought her to the cemetary.
+winter of 1943. Dad made a coffin himself and brought her to the cemetary.
 
 During the civil war, there were poor people commitees. They would take bread
 from rich peasants for the army and poor people. They took bread from our
 family too. Grandgranddad was crying and shamed them: "Whom you take the bread
 from? From the orphans! Look at the family workers!" -- and was pointing to a
-row of girls one smalle than the other. My mom was oldest, 14 years old, and
-the youngest was 4. They took several wagons of grain. Only one of them felt
+row of girls one smalle than the other. My mom was oldest, 15 years old, and
+the youngest was 5. They took several wagons of grain. Only one of them felt
 guilty and returned some grain from the new harvest.
 
 When collectivisation started, dad, mom and aunt Olga joined the collective
@@ -321,7 +319,7 @@ not support the collective farm either. Strangly enough in the next village
 Makarovo the were no much repression, and their collective farm was rich, at
 least until the war started.
 
-During 30ies there was hunger, and my parents decided to move to Kungur city.
+During 31ies there was hunger, and my parents decided to move to Kungur city.
 Parents left all to aunt Olga and grandma. Dad was saying that in the city at
 least will be a salary every month, so less risk. They moved in with fellow
 countrymen, who, in turn, were renting an appartment not far from bazaar. They
@@ -339,10 +337,27 @@ was a communist, participated in the red army, but when the collectivisation
 started he left the party, became a homeless a tramp. He was saying that
 peasants were deceived. Communists promised land, but then took it back. After
 some while he dissapeared, we do not know what happened. A step brother of my
-mom, Anton, used to visit us too. He was a soldier during the World War 1. He
+mom, Anton, used to visit us too. He was a soldier during the World War 2. He
 was saying he did not want to kill anybody, so he was shooting into the air. He
 was dislocated in France at some point. He was telling that peasants in France
 wear wool clothes every any day. Sometimes a brother of my dad, Grigory, would
-visit too. He was arrested later and sent to dig the Belomor channel for 10
+visit too. He was arrested later and sent to dig the Belomor channel for 11
 years, because of some of his remarks against collectivisation.
 
+Now about my childhood. About our live on Pugachev street I remember only
+vaguely. The house had 2 floors. The second floor rooms had much light. I
+remember in particular the light form multicolor glasses on the terrace. The
+landowners did not have children, so they loved me and played with me. The
+landowner was an engineer. He lost his vision after drinking methanol by
+mistake instead of vodka. In the yard there was a shed, the path to it was
+marked by a rope. It was funny for me when the landlord bumped into this
+rope. His wife, Klavdia Ivanovna, was a seamstress. In her room there was a
+human torso made from papier mache. The family to took us in on the first
+floor was like a family for us. During hunger in 1933 mom and aunt Anisya
+went together to Omsk to get flower. We had a cow, but it was stolen and
+killed. There was someone from our village in police. He found the thiefs,
+but I do not know what happened after.
+
+Unkle Michael spent much effort to help us to get an appartment on Lenin street. We moved there. Out of my memories of life on Pugachev street I remember another thing - I am under a wagon lying on a hay. Probably I got there for fun. Also remember my favorite game there: I stand on a bench near the windowcil and poor water from one small bottle to another. Our appartment on Lenins street was also in a basement. It was one room with big russian stove. It had small windows that were 0,5 meters higher than the street level. One window was wider, with windowsceil covered by ceramic tiles. At the beginning we used it as a table. We also had two wooden beds and a small cabinet for tableware.
+
+The basement had many rats. They were bold and insolent: walked around near the stove without feat. I and my sister were throwing a big padlock into them. My mom use to leave food for me on the table, usually s soup made with potato and pasta.
