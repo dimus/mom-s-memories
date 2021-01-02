@@ -358,6 +358,39 @@ went together to Omsk to get flower. We had a cow, but it was stolen and
 killed. There was someone from our village in police. He found the thiefs,
 but I do not know what happened after.
 
-Unkle Michael spent much effort to help us to get an appartment on Lenin street. We moved there. Out of my memories of life on Pugachev street I remember another thing - I am under a wagon lying on a hay. Probably I got there for fun. Also remember my favorite game there: I stand on a bench near the windowcil and poor water from one small bottle to another. Our appartment on Lenins street was also in a basement. It was one room with big russian stove. It had small windows that were 0,5 meters higher than the street level. One window was wider, with windowsceil covered by ceramic tiles. At the beginning we used it as a table. We also had two wooden beds and a small cabinet for tableware.
+Uncle Michael spent much effort to help us to get an appartment on Lenin
+street. We moved there. Out of my memories of life on Pugachev street I
+remember another thing - I am under a wagon lying on a hay. Probably I got
+there for fun. Also remember my favorite game there: I stand on a bench near
+the windowcil and poor water from one small bottle to another. Our appartment
+on Lenins street was also in a basement. It was one room with big russian
+stove. It had small windows that were 0,5 meters higher than the street level.
+One window was wider, with windowsceil covered by ceramic tiles. At the
+beginning we used it as a table. We also had two wooden beds and a small
+cabinet for tableware.
 
-The basement had many rats. They were bold and insolent: walked around near the stove without feat. I and my sister were throwing a big padlock into them. My mom use to leave food for me on the table, usually s soup made with potato and pasta.
+The basement had many rats. They were bold and insolent: walked around near the
+stove without feat. I and my sister threw a big padlock into them. My mom used
+to leave food for me on a table, usually it was a soup made from potato,
+vermicelli, and water, but sometimes also a milk with bred. I was not afraid to
+stay by myself, I would play with my toys. My toys were pieces of wood that my
+dad would bring, a doll that I made myself. My most treasured toy was a small
+baby carriage made from twigs. It had small wooden wheels. The carriage was a
+present from my kindergarden, I received it on some selebration. I used to not
+only put my doll into the carriage, but also a chicken called Shima. The
+chicken had only one eye, and was almost like e pet. Also I liked to play with
+candy wrappers. They were a present from aunt Olga. They were very interesting
+for me. For example, one of the wrappers had a peasant with a plow, and a field
+with a small white house in the background. I as a result I used to being alone
+at home, I even liked it. It was not that important for me to play with other
+children. And now I do not like to be around many people, and love to be alone
+at home. I relax and recharge at such times.
+
+I remember not liking when I lying sick with high temperature. One time I felt very sick, I had a vision that the whole room is filled with large blocks of ice. The blocks grew, moved, squeesed me. At that time there were no sick child care vacation days, so my mom would run from her work for a few minutes to check on me.
+
+When I was 6 years old i lied 40 days in a hospital with scarlet fever. I rember a pleasant smell of the drops of Danish king medicine, remember how my dad came and I sang him a song: "Nick, Nick, Nikolay, sit at home, do not fly. Girls will come to you while there, kiss you and will go somewhere". Somebody at the hospital taught me this song.
+
+My dad worked then at a leather factory, and the factory provided me a place in
+a kindergarden. It was a nice kindergarden in a big house, taken from a
+merchant. All best, most beautiful houses in Kungur previously belonged to
+merchants, because Kungur was a significant trade center.
