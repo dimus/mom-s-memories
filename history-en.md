@@ -1,6 +1,7 @@
 # Memories from Vassa Atepaeva
 
-Most of the story happens at, or near city [Kungur, Ural mountains](https://www.google.com/maps/place/Kungur,+Perm+Krai,+Russia).
+Most of the story happens at, or near city [Kungur, Ural 
+mountains](https://www.google.com/maps/place/Kungur,+Perm+Krai,+Russia).
 
 Let these notes to become the start of the family history of our family. They
 also might be interesting as description of situation the family was going
@@ -386,11 +387,59 @@ at home, I even liked it. It was not that important for me to play with other
 children. And now I do not like to be around many people, and love to be alone
 at home. I relax and recharge at such times.
 
-I remember not liking when I lying sick with high temperature. One time I felt very sick, I had a vision that the whole room is filled with large blocks of ice. The blocks grew, moved, squeesed me. At that time there were no sick child care vacation days, so my mom would run from her work for a few minutes to check on me.
+I remember not liking when I lying sick with high temperature. One time I felt 
+very sick, I had a vision that the whole room is filled with large blocks of 
+ice. The blocks grew, moved, squeesed me. At that time there were no sick 
+child care vacation days, so my mom would run from her work for a few minutes 
+to check on me.
 
-When I was 6 years old i lied 40 days in a hospital with scarlet fever. I rember a pleasant smell of the drops of Danish king medicine, remember how my dad came and I sang him a song: "Nick, Nick, Nikolay, sit at home, do not fly. Girls will come to you while there, kiss you and will go somewhere". Somebody at the hospital taught me this song.
+When I was 6 years old i lied 40 days in a hospital with scarlet fever. I 
+rember a pleasant smell of the drops of Danish king medicine, remember how my 
+dad came and I sang him a song: "Nick, Nick, Nikolay, sit at home, do not fly. 
+Girls will come to you while there, kiss you and will go somewhere". Somebody 
+at the hospital taught me this song.
 
 My dad worked then at a leather factory, and the factory provided me a place in
 a kindergarden. It was a nice kindergarden in a big house, taken from a
 merchant. All best, most beautiful houses in Kungur previously belonged to
 merchants, because Kungur was a significant trade center.
+
+Dad pulled me to the kindergarden on sleds. The road was going along the
+high and steep bank of Sylva river, and I was always scared that my sleds will 
+fall down.
+
+The life in kindergarden was interesting for me. Even its year in winter was 
+interesting, because teachers made colorful decorations from frozen ice. Also 
+I remember a big ship made out of snow and ice in the backyard. The most 
+amazing for me were music lessons. The sounds of piano seemed to be magical.
+
+My mom worked in the same kindergarden. At first she was a manager. At that 
+time kindergarden did not have any transportation, so she carried all the 
+products by herself. My mom was a very honest person, so we never had any 
+kindergarden products at home. Her honesty caused a conflict with the 
+director, Maria Michailovna. She had a stern character and people felt fear 
+around her. My mom did not give her any products either, and director felt 
+strong discontentment towards my mom. After several fights my mom decided to 
+move to a position of a night nurse. I still can hear her voice, reading us, 
+children, a book. This memory always brings me some wonderful feeling of being 
+safe, protected, and loved.
+
+When the war started, again, it was hungry times, and my mom again started to 
+get demends from the director to give her food. Mom was saying that she will 
+give, if something will be left after children. But what leftowers could exist 
+when portions were so small. In the end mom had to move to a different 
+kindergarden, one that was close to home, on another side of Sylva river.
+
+Maria Michailovna felt guilt towards my mom, and when she became gravely ill, 
+she asked mom to come to her, and she asked forgiveness. Soon she died.
+
+In 1945 the kindergarden moved to a summer house, in a village. Mom worked as 
+a manager then. Everybody were placed in a school building. The forest had 
+large amount of berries and mashrooms, it was a paradise for children. I 
+remember jars with berries and jams. Bread was distributed according to rasion 
+cards, but it was decided to give children bread all at once, not by daily 
+norm. At first children ate 3-days norm, but then understood it was not good 
+and ratined it themselves. It was so important for us to know that there is no 
+limit.
+
+
